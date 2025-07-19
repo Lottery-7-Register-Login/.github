@@ -1,4 +1,4 @@
-```md
+
 <div align="center">
 
 <a href="https://lottery7invitecode.in/lottery7" target="_blank" rel="noopener noreferrer">
@@ -54,7 +54,7 @@ That’s it! Your account is now active and ready to go.
 
 ## 🎁 Why Use the Invite Code 5442816102151?
 
-This exclusive **[Lottery 7 Invite Code](https://github.com/Lottery-7-Invite-Code-4265615473389)** helps you unlock hidden features and free bonuses when you register. Here’s what you get:
+This exclusive **[Lottery 7 Invite Code](https://www.flux.ai/lottery-7-invite-code)** helps you unlock hidden features and free bonuses when you register. Here’s what you get:
 
 - 🎉 Welcome bonus directly in your wallet  
 - 💸 Cashback on first deposit  
@@ -83,7 +83,7 @@ Now you're all set to play and win.
 Yes, it’s completely free to create an account.
 
 ### Q2. Is an invite code required?  
-It’s not required, but using a verified **[Lottery 7 Invitation Code](https://github.com/Lottery-7-Invite-Code-4265615473389)** like `5442816102151` gets you a bonus.
+It’s not required, but using a verified **[Lottery 7 Invitation Code](https://www.flux.ai/lottery-7-invite-code)** like `5442816102151` gets you a bonus.
 
 ### Q3. Can I register with just a phone number?  
 Yes. You just need a valid mobile number to sign up.
@@ -109,8 +109,8 @@ Good luck and happy playing! 🍀
 
 ## 🔗 Bonus Resources
 
-- [Lottery 7 Invite Code](https://github.com/Lottery-7-Invite-Code-4265615473389)  
-- [Lottery 7 Invitation Code](https://github.com/Lottery-7-Invite-Code-4265615473389)
+- [Lottery 7 Invite Code](https://www.flux.ai/lottery-7-invite-code)  
+- [Lottery 7 Invitation Code](https://www.flux.ai/lottery-7-invite-code)
 
 ---
 
@@ -118,4 +118,3 @@ Good luck and happy playing! 🍀
 
 **Title:** How to Lottery 7 Register in 2025 – Use Invite Code 5442816102151 for Bonuses  
 **Meta Description:** Learn how to Lottery 7 Register quickly with step-by-step instructions. Use invite code 5442816102151 to get signup bonuses, cashback, and exclusive rewards.
-```
